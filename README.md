@@ -1,1 +1,2 @@
-# Metta2015 wheee
+# Metta2015 :D
+Greetings Earthlings
